@@ -213,9 +213,9 @@ jiren = `
 ╰━━•›ꪶ ཻུ۪۪ꦽꦼ̷⸙ ━ ━ ━ ━ ꪶ ཻུ۪۪ꦽꦼ̷⸙‹•━━͙
 ▬▭▬▭▬ ✦✧✦ ▬▭▬▭▬
 ╭━━•›
-│➳ OWNER : Law
-│➳ HARGA AKSES : 10k
-│➳ WA OWNER : wa.me/6281220670449
+│➳ OWNER : zlhd_asshiddiqi
+│➳ HARGA AKSES : 40k
+│➳ WA OWNER : wa.me/6281365459013
 
 ╰━ ━ ━ ━ ━ ━ ━ ━ ━ ━•⩵꙰ཱི࿐
 ▬▭▬▭▬ ✦✧✦ ▬▭▬▭▬
